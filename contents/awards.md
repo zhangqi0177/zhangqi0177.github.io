@@ -1,9 +1,13 @@
-- First-prize Academic Scholarship, 2023.
+- Excellent graduate, 2024.
 
-- Freshman Academic Scholarship, 2022.
+- Excellent intern, 2024.
 
-- Excellent Graduation Project of Jiangsu Province, 2022.
+- Second-prize Academic Scholarship, 2023
 
-- First-prize Enterprise Scholarship, 2021.
+- First-prize Academic Scholarship, 2022.
 
-- First-prize Academic Scholarship, 2019.
+- Three Good Student Model, 2022.
+
+- Excellent League member, 2021
+
+- Second-prize Academic Scholarship, 2021.
