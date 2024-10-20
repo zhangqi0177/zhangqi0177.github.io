@@ -1,6 +1,6 @@
 
 
-[![senli1073](https://img.shields.io/badge/senli1073-github-blue?logo=github)](https://github.com/senli1073)
+[![zhangqi0177](https://img.shields.io/badge/zhangqi0177-github-blue?logo=github)](https://github.com/zhangqi0177)
 
 I am currently pursuing a Master's Degree in Computer Science, at interdisciplinary college, Lingnan University, Hong Kong.
 
